@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aakshita-bhardwaj
+- 👀 I’m interested in coding & web development.
+- 🌱 I’m currently gaining experience with hands-on projects.
+- 📫 Lets connect on Discord: http://discordapp.com/users/1253725918275567617
+- 😄 Pronouns: She/Her
